@@ -1,0 +1,1 @@
+I put together a reduced effects grf with some unique features. you can find it here http://hotfile.com/dl/152269192/694679a/Thoth.grf.html
